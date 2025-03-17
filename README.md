@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I'm currently learning on Penetration Tester<br>🤝 I'm looking for people who may help me in my field<br>🌱 I'm currently learning BTL1<br>⚡ Fun fact =--(I'm in IT from 14 years old🫡)->
+🔭 I'm currently learning on Penetration Tester<br>🤝 I'm looking for people who may help me in my field<br>⚡ Fun fact =--(I'm in IT from 14 years old🫡)->
 
 
 ## 🌐 Socials:
